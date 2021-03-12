@@ -6,3 +6,10 @@ Olá! Bem vindo ao meu livro de receitas :wave:
 
 - Fricassê de frango
 
+- Brócolis gratinado 
+
+- Macarrão ao molho rosê 
+
+- Brigadeiro 
+
+- Arroz Doce 
